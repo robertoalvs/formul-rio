@@ -1,3 +1,0 @@
-Jovens, só temos um campeão no Grupo que é...
-RSA_PcGamer
-O resto é tudo Free!!!
